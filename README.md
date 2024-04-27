@@ -1,0 +1,4 @@
+-  hello i am a150isbackk
+-  im currently (trying to) (learn/learning) coding and stuff
+-  pronouns: He/Him
+-  fun fact: I just joined for no reason.
